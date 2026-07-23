@@ -23,7 +23,7 @@ i have the hops of a zebra finch and the heart and looks of a button quail, aswe
 i Dont go on pony town often, so i dont have much to say here. Please be my friend if you like osomatsu san TOO!!!! i'm worth the chat, have you ever seen a hatabou superfan, jo?!
 </p>
 <p align="center">
-https://x.com/newscarsting  <img width="20" height="20" alt="image" src="https://i.postimg.cc/sg28PVzF/6.gif" /> here i am, dajo :)
+https://x.com/newscarsting  <img width="20" height="20" alt="image" src="https://i.postimg.cc/sg28PVzF/6.gif" /> here i am, dajo :) [ahu](hatabou.atabook.org)
 
 <p align="center">
   <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c2715f0e-d162-4356-9eac-1e5b7d040e06" />
